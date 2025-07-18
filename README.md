@@ -22,4 +22,5 @@
 ---
 
 📫 Let's connect  
-[LinkedIn](https://www.linkedin.com/in/ankit-mandal-34a271355?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) • [Email](ankitmandal2109@gmail.com)
+✉️ ankitmandal2109@gmail.com  
+🔗 [LinkedIn](https://www.linkedin.com/in/ankit-mandal-34a271355?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
